@@ -1,2 +1,2 @@
 # Project-Aura-Mythos-or-Creation-Model-Guidance
-it is designed with basic to advanced framework models and reasoning.
+containing such to exemplify meaning to peratin such live ecosystem creational guidance measure.
